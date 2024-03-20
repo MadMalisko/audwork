@@ -29,12 +29,13 @@
   
 |Exercise|Example|Notes|
 |---|---|---|
-|Goblet squat|[An example that is hopefully good](https://www.youtube.com/shorts/7-80HiXX1K8)||
+|Goblet squat|[An example that is hopefully good](https://www.youtube.com/shorts/7-80HiXX1K8)|Core should be engaged during this; really focus on that|
 |Dumbbell walking lunges|You know how to do these. Yes, they suck||
 |Banded side steps|[This is a good video to watch](https://www.youtube.com/watch?v=X0jsl2ZrXug)|If no bands we'll go get some|
 |Cable hip adduction|[You guessed it - a video link](https://www.youtube.com/watch?v=EHq78mQYLbI&pp=ygUcY2FibGUgaGlwIGFkZHVjdGlvbiBleGVyY2lzZQ%3D%3D)|Look for a strappy attachment that wraps around the ankle before just grabbing a normal handle|
-|Hip thrusts|I *know* you know how to do this....||
-|Unilateral leg press||We may need to review available equipment|
+|Dumbbell step ups|[Nice no frills explanation - use the adjustable platform on the universal](https://www.youtube.com/watch?v=9ZknEYboBOQ)|If stability feels problematic just do bodyweight until you build up confidence|
+|Split squat|[Oh yes. Splits. Squats. What's not to love?](https://www.youtube.com/watch?v=hXpGSa5HYqY)||
+|Russian twist|[Yeah move that torso yo](https://www.youtube.com/watch?v=wkD8rjkodUI)|Start with unweighted, going for time; this should burn|
 <br>
 <br>
 <br>
